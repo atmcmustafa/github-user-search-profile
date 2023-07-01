@@ -2,6 +2,7 @@
 
 ## [Link](https://gorgeous-pasca-6d3462.netlify.app)
 
-### ![2](https://github.com/atmcmustafa/github-user-search-profile/assets/98126723/3e25e439-e051-49a6-ad43-699c59385c73)
+![2](https://github.com/atmcmustafa/github-user-search-profile/assets/98126723/577ff2bf-6290-4886-92eb-e6d774f343c1)
+
 
 
